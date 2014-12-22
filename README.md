@@ -32,8 +32,184 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Falles of vnfortunate princes being a true chronicle historie of the vntimely death of such vnfo
+
+1. Loue and liue.
+
+1. TO THE READER.
+
+1. THE CONTENTS of the booke.
+
+1. THOMAS NEWTON TO THE Reader, in the behalfe of this booke.
+
+1. THE AVTHORS Induction.
+
+1. Faults eſcaped.
+
 #####Body#####
+HOW KING ALBANACT THE YOVNGEST SONNE OF BRVTVS, AND FIRST KING OF Albany (now called Scotland) was ſ
+    _ HOW KING ALBANACT THE YOVNGEST SONNE OF BRVTVS, AND FIRST KING OF Albany (now called Scotland) was ſlaine by king Humber, the yeere before Chriſt, 1085.
+
+    _ HOW HVMBER THE KING OF Hunnes minding to conquer Britaine, was drowned in the arme of ſea now called Humber, about the yeare before Christ, 1085.
+
+    _ HOW KING LOCRINVS the eldeſt ſon of Brutus liued vitiouſly, and was ſlaine in battell by his wife, Queene Guendoline, the yeare before Christ, 1064.
+
+    _ HOW QVEENE ELSTRIDE, THE Concubine and ſecond wife of King Locrinus, was miſerablie drowned by Queene Guendoline, the yeere before Chriſt, 1064.
+
+    _ HOW THE LADIE SAbrine, daughter of King Locrinus and Elstride, was drowned by Queene Guendoline, the yeare before Christ, 1064.
+
+    _ HOW KING MADAN FOR HIS EVILL LIFE was ſlaine by Wolues, the yeare before Christ, 1009.
+
+    _ HOW KING MALIN WAS SLAINE BY HIS BROther King Mempricius, the yeare before Christ, 1009.
+
+    _ HOW KING Mempricius giuen to all luſt, was deuoured by VVolues, the yeare before Christ, 989.
+
+    _ HOW KING BLADVD, TAKING ON HIM TO FLIE, fell vpon the Temple of Apollo, and brake his necke, the yeere before Chriſt, 844.
+
+    _ HOW QVEENE CORDILA IN DESPAIRE SLEW her ſelfe, the yeare before Christ, 800.
+
+    _ HOW KING MORGAN OF ALBANY was ſlaine at Glamorgan in Wales, The yeare before Christ, 766.
+
+    _ HOW KING IAGO DIED OF THE LETHARGIE, about the yeare before Chriſt, 612.
+
+    _ HOW KING FORREX WAS SLAINE by his brother King Porrex, about the yeare before Christ 491.
+
+    _ HOW KING PORREX WHICH SLEW HIS brother, was ſlaine by his owne mother and her maidens, about the yeare before Christ, 491.
+
+    _ HOW KING PINNAR WAS SLAINE IN BATtaile by Mulmucius Donwallo, about the yeare before Christ, 441.
+
+    _ HOW KING STATER OF SCOTLAND was ſlaine by Mulmucius Donwallo, about the yeare before Christ, 441.
+
+    _ HOW KING RVDACKE OF WALES WAS ſlaine by Mulmucius Donwallo about the yeare before Christ, 441.
+
+    _ HOW THE NOBLE King Brennus, after many triumphant victories, at the ſiege of Delphos in Greece ſlew himſelfe, about the yeare before Christ, 375.
+
+    _ HOW KING KIMARVS WAS DEVOVred by wilde beaſts the yeare before Christ, 321.
+
+    _ HOW KING MORINDVS WAS DEuoured by a monſter, the yeare before Christ. 303.
+
+    _ HOW KING EMERIANVS FOR HIS TYRANNIE WAS DEPOSED, ABOVT THE yeare before Chriſt, 225.
+
+    _ HOW KING CHRINNVS GIVEN TO DRVNKENNES raigned but one yeare. He died about the yeare before Christ, 137.
+
+    _ HOW KING VARIANVS GAVE HIMSELFE TO THE luſtes of the fleſh, and dyed about the yeare before Christ, 136.
+
+    _ HOW THE WORTHIE Britaine Duke Nennius as a valiant Souldier and faithfull Subiect encountred with Iulius Caeſar, was by him death-wounded: yet neuertheleſſe he gate Caeſars ſword, put him to flight, ſlew therewith Labianus a Tribune of the Romans, endured fight till his countrie men wan the field, and now encourageth all good Subiects, to defend their countrey from the power of forraine and intruding enemies. He was ſlaine about the yeare before Chriſt, 52.
+
+    _ HOW THE LORD IRENGLAS COSIN TO KING CASSIBELLANE, was ſlaine by the Lord Elimine, coſin to Androgeus Earle of London, about the yeare before Christ, 51.
+
+    _ HOW CAIVS IVLIVS CAESAR, which firſt made this Realme tributarie to the Romanes, was ſlaine in the Senate houſe, about the yeare before Christ, 42.
+
+    _ HOW CLAVDIVS TIBERIVS NERO EMPEROVR OF Rome, was poiſoned by Caius Caligula, the yeare of Christ, 39.
+
+    _ HOW CAIVS CAESAR CALIGVLA EMPEROVR OF Rome was ſlaine by Cherea and others, the yeare of Christ, 42.
+
+    _ HOW GVIDERIVS KING of Britaine, and the elder ſon of Cimbaline was ſlaine in battaile by a Romane, the yeare of Christ, 44. or as ſome write, 46.
+
+    _ HOW LAELIVS HAMO THE ROMANE CAPTAINE was ſlaine, after the ſlaughter of Guiderius, about the yeare of Christ, 46.
+
+    _ HOW CLAVDIVS TIBERIVS DRVSVS EMPEROVR of Rome, was poiſoned by his wife Agrippina, The yeare of Christ, 56.
+
+    _ HOW THE EMPEROVR DOMITIVS NERO LIVED wickedly and tyrannouſly, and in the end miſerablie ſlew himſelfe, the yeare of Christ, 70.
+
+    _ HOW SERGIVS GALBA THE EMPEROVR OF ROME (giuen to ſlaughter, ambition, and gluttonie) was ſlaine by the ſouldiers, the yeare of Christ, 71.
+
+    _ HOW THE VICIOVS SILVIVS OTHO EMPEROVR OF Rome ſlew himſelfe, the yeare of Christ, 71.
+
+    _ HOW AVL VS VITELLIVS EMPEROVR OF ROME, came to an infortunate end: the yeare of Christ, 71.
+
+    _ LONDRICVS THE Pict, ſlaine by King Marius of Britaine, about the 80. yeare of Christ.
+
+    _ HOW SEVER VS THE EMPEROR of Rome and gouernour of Britaine was ſlaine at Yorke, fighting againſt the Picts, about the yeare after Chriſt, 206. after others, 213.
+
+    _ HOW FVLGENTIVS A SCYTHIAN, OR PICT, WAS ſlaine at the ſeige of Yorke, about the yeare of Christ, 206. or 213.
+
+    _ HOW GETA THE YONGER SONNE OF THE EMPErour Seuerus once Gouernour of Britaine, was ſlaine in his mothers armes by his brother ANTONINE, Emperour of Rome, about the yeare of Christ, 214.
+
+    _ HOW AVRELIVS AN TONIVS BASSIANVS CARACALLA Emperour of Rome, was ſlaine by one of his owne ſeruants, about the yeere of Chriſt, 209.
+
+    _ HOW CARASSVS A HVSBANDMANS SONNE, AND AFTER King of Britaine, was ſlaine in battell by Alectus a Roman, Anno Dom. 293.
+
+    _ HOW QVEENE HELENA OF BRITAINE MARried CONSTANTIVS the Emperour, and much aduanced the Christian faith through the whole world, An. Dom. 289.
+
+    _ HOW VORTIGER DESTROYED THE YONG KING CONSTANTINE, and how hee obtained the Crowne: and how after many miſeries, he was miſerablie burnt in his Castle, by the brethren of Conſtantine, Anno Dom. 446.
+
+    _ HOW VTER PENDRAGON WAS INAMOVRED ON the wife of Gorolus Duke of Cornewall, whom he ſlew, and after was poiſoned by the Saxons, Anno Dom. 500.
+
+    _ HOW CADWALLADER THE LAST KING OF THE Britaines was expelled by the Saxons, went to Rome, and there liued in a religious houſe.
+
+    _ HOW SIGEBERT FOR HIS WICKED LIFE was thruſt from his Throne, and miſerablie ſlaine by a Heardſman, Anno Dom. 755.
+
+    _ HOW LADIE EBBE DID FLEA HER NOSE AND VPPER lippe away, to ſaue her Virginitie, Anno Dom. 870.
+
+    _ HOW KING EGELRED FOR HIS WICKEDNESSE WAS diuerſly diſtreſſed by the Danes, and laſtly died for ſorrow, Anno Dom. 1016.
+
+    _ HOW EDRICVS EARLE OF MERCIA, DESTROYED THE VALIANT KING EDMVND IRONſide, in hope of aduancement, and how he was rewarded, Anno Dom. 1018.
+
+    _ HOW KING HAROLD RAIGNING BVT NINE MONETHS, had continuall warre with the Danes, with the Norway King, with his brother TOSTIVS, and was at last ſlaine in battell by William the Conquerer, An. Dom. 1095.
+To the Reader.HAuing hitherto continued the ſtorie (gentle Reader) from the firſt entrance of Brute 
+    _ To the Reader.
+
+    _ Mr. SACKVILS INDVCTION.
+
+    _ HOW THE TWO ROgers, ſurnamed Mortimers, for their ſundry vices, ended their liues vnfortunately, the one, An. 1329. the other, 1387.
+
+    _ THE FALL OF ROBERT Treſilian chiefe Iuſtice of England, and other his fellowes, for miſconſtruing the Lawes, and expounding them to ſerue the Princes affections, Anno 1388.
+
+    _ HOW SIR THOMAS OF WOODSTOCKE DVKE OF Gloceſter, vncle to King Richard the ſecond, was vnlawfully murdered, An. Dom. 1397.
+
+    _ HOW THE LORD MOWbrey, promoted by King Richard the ſecond to the ſtate of a Duke, was by him baniſhed the Realme the yeare of Chriſt, 1398. and after died miſerablie in exile.
+
+    _ HOW KING RICHARD THE SECOND WAS FOR HIS euill gouernance depoſed from his ſeate, in the yeare 1399. and murdered in priſon the yeare following.
+
+    _ HOW OWEN GLENDOVR SEDVCED BY FALSE PROPHESIES, tooke vpon him to be Prince of Wales, and was by Henrie Prince of England chaſed to the Mountaines, where he miſerablie died for lacke of food, An. 1401.
+
+    _ HOW HENRY PERCY Earle of NORTHVMBERLAND, was for his couetous and traiterous attempt put to death at Yorke, Anno 1407.
+
+    _ HOW RICHARD PLANTAGENET EARLE OF CAMBRIDGE INTENding the Kings deſtruction, was put to death at Southhampton, Anno Dom. 1415.
+
+    _ HOW THOMAS MONTAGVE EARLE OF SALISBVrie in the middeſt of his glorie, was chanceably ſlaine at Orleaunce with a piece of Ordinance, the third of Nouember, Anno Dom. 1428.
+
+    _ HOW DAME ELEANOR COBHAM DVCHESSE OF GLOCESTER, FOR PRACtiſing of Witchcraft and Sorcery, ſuffred open penance, and after was baniſhed the Realme into the Ile of Man.
+
+    _ HOW HVMFREY PLANTAGENET DVKE OF GLOCESTER. Protector of England, during the minoritie of his Nephew King Henry the ſixt, (commonly called the good Duke) by practiſe of enemies was brought to confuſion.
+
+    _ HOW LORD WILLIAM DELAPOLE Duke of Suffolke was worthily baniſhed, for abuſing his King, and cauſing the deſtruction of the good Duke Humfrey, Anno Dom. 1450.
+
+    _ HOW IACK CADE NAMING HIMSELFE MORTIMER, TRAYTEROVSLY rebelling againſt his King, in Iune, Anno 1450. was for his treaſons and cruell doings worthilie puniſhed.
+
+    _ THE TRAGEDIE OF EDMVND DVKE OF SOMMERSET, SLAINE IN THE FIRST battaile at Saint Albanes, the 23. day of May, in the 32. yeare of Henrie the ſixt, Anno Dom. 1454.
+
+    _ HOW RICHARD PLANTAGENET DVKE OF YORKE, was ſlaine through his ouer raſh boldnes, and his ſonne the Earle of Rutland, for his lacke of valiance, An. Dom. 1460.
+
+    _ HOW THE LORD CLIFFORD FOR HIS STRANGE and abominable crueltie, came to as ſtrange and ſudden a death, Anno, 1461.
+
+    _ THE INFAMOVS END OF THE LORD TIPTOFT EARLE OF WORceſter, for cruelly executing his Princes butcherly commandements. Anno Dom. 1470.
+
+    _ HOW SIR RICHARD NEVILL EARLE OF WARWICKE, AND HIS BROTHER IOHN Lord Marquiſe Montacute, through their too much boldnes were ſlaine at Barnet, the 14. of Aprill, Anno 1471.
+
+    _ HOW KING HENRIE THE SIXT, A VERTVOVS PRINCE, WAS, AFter many other miſeries, cruelly murdered in the Tower of London the 22. of May, Anno, 1471.
+
+    _ HOW GEORGE PLANTAGENET THIRD SONNE OF THE DVKE OF Yorke, was by his brother King Edward wrongfully impriſoned, and by his brother Richard miſerably murdered, the 11. of Ianuarie, An. Dom. 1478.
+
+    _ HOW KING EDWARD THE FOVRTH THROVGH HIS SVRFETING and vntemperate life, ſuddenly died in the middeſt of his proſperitie, the ninth of Aprill, Anno 1483.
+
+    _ HOW SIR ANTHONY WODVILE Lord Riuers and Scales, gouernour of Prince EDVVARD, was with his Nephew Lord Richard Gray and other cauſeleſſe impriſoned, and cruelly murdered, Anno, 1483.
+
+    _ HOW THE LORD HASTINGS WAS BETRAYED BY TRVSTING TOO MVCH to his euill Counſeller Cateſby, and villanouſly murdered in the Tower of London, by Richard Duke of Glocester, the 13. of Iune, Anno, 1483.
+
+    _ THE COMPLAINT OF HENRIE DVKE of Buckingham.
+
+    _ HOW COLLINGBOVRNE WAS CRVELLY EXECVTED FOR making a Rime.
+
+    _ THE WILFVLL FALL OF THE BLACK-SMITH, AND THE fooliſh end of the Lord Awdeley, in Iune, Anno Dom. 1496.
+
+    _ HOW THE VALIANT KNIGHT SIR NICHOLAS Burdet, Chiefe Butler of Normandie, was ſlaine at Pontoiſe, Anno Dom. 1441.
+
+    _ HOW SHORES WIFE, KING EDWARD THE FOVRTHS CONCVBINE, WAS by King Richard deſpoiled of all her goods, and forced to doe open penance.
+
+    _ HOW THOMAS WOLSEY DID ARISE VNTO GREAT authoritie and gouernment, his manner of life, pompe and dignitie, and how he fell downe into great diſgrace, and was arrested of high treaſon. Anno, 1530.
+
+    _ HOW THE LORD CROMWELL EXALTED FROM MEANE ESTATE, was after by the enuie of the Biſhop of Wincheſter and other his complices brought to vntimely end, Anno Dom. 1540.
 
 **Types of content**
 
